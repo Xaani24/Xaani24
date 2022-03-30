@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...technology and administration 
 - 🌱 I’m currently learning ...business development 
 - 💞️ I’m looking to collaborate on ... technology 
-- 📫 How to reach me ...07858372030
+- 📫 How to reach me ...xanni25@gmail.com 
 
 <!---
 Xaani24/Xaani24 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
